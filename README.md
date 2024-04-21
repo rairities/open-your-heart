@@ -11,21 +11,20 @@ c+h , dnc skins . strictly no ships & rp plz
  
 
 generally anyone can int unless stated otherwise, hh fandom on thin ice. just dont be creepy
-
-erm dni weirdos & viv supporters,, hh antis i hate the fandom just much as u do
-
+hh antis i hate the fandom just much as u do
 
 
+erm dni weirdos & viv supporters,, 
 
-all of my pony names r song lyrics,, heerherh.
+
 
 i <3 mitski & the crane wives. if u do too ill kiss u on the cheek
 
 
 
-socially awkward, i dont int first bc of this,, sawry
+i suck at small talk & conversations in general sorry
 
-ill warm up to u eventually tho 
+socially awkward, usually wont int first,, ill warm up to u eventually tho 
 
 
 
