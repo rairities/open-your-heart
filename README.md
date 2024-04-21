@@ -6,17 +6,25 @@ hi! i'm tora. maybe uve seen me in ur sleep
 any pronouns but prefer she/they 
 
 
+
 c+h , dnc skins . strictly no ships & rp plz
  
+
+erm dni weirdos & viv supporters,, hh antis i hate the fandom just much as u do
+
+
+
 
 all of my pony names r song lyrics,, heerherh.
 
 i <3 mitski & the crane wives. if u do too ill kiss u on the cheek
 
 
+
 socially awkward, i dont int first bc of this,, sawry
 
 ill warm up to u eventually tho 
+
 
 
 always online, usually off-tab so w2i!
