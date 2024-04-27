@@ -5,19 +5,18 @@ hi! i'm tora. maybe uve seen me in ur sleep
 
 any pronouns but prefer she/they 
 
-
+.
 
 c+h , dnc skins . strictly no ships & rp plz
- 
 
-generally anyone can int unless stated otherwise(hi madcom fans),
+ .
+
+generally anyone can int unless stated otherwise(hi madcom fans<33),
 hh fandom on thin ice. just dont be creepy
 
+erm dni weirdos & viv supporters,, 
 
 hh antis i hate the fandom just much as u do
-
-
-erm dni weirdos & viv supporters,, 
 
 .
 
