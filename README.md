@@ -10,7 +10,7 @@ any pronouns but prefer she/they
 c+h , dnc skins . strictly no ships & rp plz
  
 
-generally anyone can int unless stated otherwise, hh fandom on thin ice. just dont be creepy
+generally anyone can int unless stated otherwise(hi madcom fans), hh fandom on thin ice. just dont be creepy
 hh antis i hate the fandom just much as u do
 
 
