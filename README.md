@@ -10,25 +10,28 @@ any pronouns but prefer she/they
 c+h , dnc skins . strictly no ships & rp plz
  
 
-generally anyone can int unless stated otherwise(hi madcom fans), hh fandom on thin ice. just dont be creepy
+generally anyone can int unless stated otherwise(hi madcom fans),
+hh fandom on thin ice. just dont be creepy
+
+
 hh antis i hate the fandom just much as u do
 
 
 erm dni weirdos & viv supporters,, 
 
-
+.
 
 i <3 mitski & the crane wives. if u do too ill kiss u on the cheek
 
-
+.
 
 i suck at small talk & conversations in general sorry
 
 socially awkward, usually wont int first,, ill warm up to u eventually tho 
 
+.
 
-
-always online, usually off-tab so w2i!
+usually off-tab so w2i!
 
 
 ![pony-town-like the gates of hell-trot-blinking-padded-ponyplush-4x](https://github.com/vvkixv/open-your-heart/assets/164071327/77f5e1e5-2bb9-41ae-abdd-06ed54f27a3a)
