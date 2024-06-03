@@ -13,7 +13,7 @@ c+h , dnc skins . strictly no ships & rp plz
 
 anyone can int
 
-i <3 mcyt and madcom 
+i <3 mcyt /e.g traffic life,, the cool stuff/ and madcom 
 
 .
 
