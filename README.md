@@ -1,7 +1,7 @@
 
 ![cutebunny](https://github.com/vvkixv/open-your-heart/assets/164071327/bdf336b7-7a62-435c-bb94-211e5693c193)
 
-hi! i'm tora. maybe uve seen me in ur sleep
+hi! i'm tora or vix. maybe uve seen me in ur sleep
 
 any pronouns but prefer she/they 
 
@@ -11,13 +11,13 @@ c+h , dnc skins . strictly no ships & rp plz
 
  .
 
-generally anyone can int unless stated otherwise(hi madcom fans<33),
-hh fandom on thin ice. just dont be creepy
+anyone can int
 
-erm dni weirdos & viv supporters,, 
+i <3 mcyt and madcom 
 
-hh antis i hate the fandom just much as u do
+.
 
+happy r=pride month im aroace guys
 .
 
 i <3 mitski & the crane wives. if u do too ill kiss u on the cheek
